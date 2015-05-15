@@ -1,2 +1,0 @@
-# ITweekEnd
-ITweekEnd official page
